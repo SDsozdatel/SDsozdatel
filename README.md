@@ -1,6 +1,6 @@
 - Hi, I’m @SDsozdatel
 - On this account, I will upload the necessary things!
-- I play geometry dash, minecraft and other games ...
+- I play geometry dash (gdps), minecraft and other games
 - My discord Smyzik#3979
 - Watch my profile!
 
